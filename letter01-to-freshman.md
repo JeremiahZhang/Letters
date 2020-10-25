@@ -117,6 +117,6 @@
 
 无论如何, 请你们要自信, 要勇敢, 要满怀希望. 因为你们的征途, 是星辰大海.
 
-最后的最后, 分享一篇我欣赏的老师(WYGG)的旧文给你们, [点击此链接](文档http://note.youdao.com/noteshare?id=d282ea917c553805f3c1872af075feb9&sub=90692B21200A425E8B587BF1FFB5F035).
+最后的最后, 分享一篇我欣赏的老师(WYGG)的旧文给你们, [点击此链接](http://note.youdao.com/noteshare?id=d282ea917c553805f3c1872af075feb9&sub=90692B21200A425E8B587BF1FFB5F035).
 
 JA1581-01
